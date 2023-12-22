@@ -43,3 +43,4 @@
 
 ## Контактная информация
 - Email: ilnur.kazyrguloff@gmail.com
+- Telegram: t.me/ilnurk1
